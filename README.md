@@ -30,7 +30,7 @@ In a world that often emphasizes the need for constant achievement and progress,
 
 4. **Celebrate Small Wins**: Acknowledge and celebrate the completion of these tasks. Each small win adds up and contributes to a positive mindset.
 
-5. **Share the Joy**: Share your favorite easy tasks with friends and family. Sometimes, doing something simple together can enhance the experience and strengthen bonds.
+5. **Share the Joy**: Share your favorite [easy tasks](http://ask.io.vn/) with friends and family. Sometimes, doing something simple together can enhance the experience and strengthen bonds.
 
 #### Conclusion
 
