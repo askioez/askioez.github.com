@@ -9,7 +9,7 @@ Today, let’s dive into a simple yet delightful concept: the joy of easy tasks 
 There’s something inherently pleasing about simplicity. When a task is easy, it doesn’t require much mental or physical effort, allowing us to relax and enjoy the process. Think about the pleasure of eating a piece of chocolate, solving a simple puzzle, or even tidying up your workspace. These activities are straightforward and often bring immediate gratification.
 
 #### The Power of Repetition
-
+![](https://media.allure.com/photos/62b49322148cb23dddb8876f/1:1/w_958,h_958,c_limit/guide%20to%20facial%20piercings.png)
 Repetition can be comforting. When we repeat an easy task, it becomes almost meditative, creating a rhythm that can be soothing. This is why many people find joy in activities like knitting, doodling, or even organizing their surroundings. The act of doing something familiar and effortless can help clear the mind and reduce stress.
 
 #### Building Confidence Through Mastery
